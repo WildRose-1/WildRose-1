@@ -1,6 +1,5 @@
  👋 Hi, I’m @WildRose-1
   - 🇦🇺🇷🇴 | 21
-  - 👀 chances are i'm lurking
   - 😄 Pronouns: She/Her
   - ⚡ Fun fact: I love cats <3 
 
